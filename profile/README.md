@@ -103,3 +103,11 @@ Our goal is not simply to build software, but to create technology that people c
 ### 🧙 Build. Learn. Experiment. Repeat.
 
 **B2CSolution — Technology built with purpose.**
+
+
+### Give us the Feedback
+<img width="572" height="562" alt="image" src="https://github.com/user-attachments/assets/75cec73c-d17d-4e63-bc86-37eb8c6d9298" />
+
+or 
+
+**Visit to the link** : https://forms.gle/DfSsB26ANRxfhbiJ8
